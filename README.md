@@ -1,4 +1,4 @@
 # shuraminkio.github.io
 
 
-Sub to min kio
+Sub to minkio
