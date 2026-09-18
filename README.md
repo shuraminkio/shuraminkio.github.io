@@ -1,2 +1,4 @@
 # shuraminkio.github.io
-Minkio External Website 
+
+
+Sub to min kio
